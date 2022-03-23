@@ -5,4 +5,4 @@ https://wikidocs.net/22 <이론>
 
 
 
-https://araikuma.tistory.com/351?category=782517
+https://araikuma.tistory.com/351?category=782517 언어 다알수잇음
